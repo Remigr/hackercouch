@@ -15,15 +15,15 @@ It’s like CouchSurfing, except CouchSurfing sucks. So does AirBnB, hostels and
 
 ## Crash on my couch
 
-I'm based in Vilnius, Lithuania
-See my hospitality exchange profiles on:
+I am sometimes in Grenoble, France. If I am not there, there is usually space in my parent's house !
+email : remiclaude@free.fr
+or :
 
-* [BeWelcome](http://www.bewelcome.org/members/mikael)
-* [CouchSurfing](http://www.couchsurfing.org/people/simison/)
-* [WarmShowers](https://www.warmshowers.org/users/mikael)
+* [BeWelcome](http://www.bewelcome.org/members/Remigr)
+* [CouchSurfing](https://www.couchsurfing.org/people/remigr/)
 
 Just add an issue or drop me a message if you wanna stay. :-)
 
 ## Have me crash on your couch
 
-I travel extensively around Europe. Just drop me an invite!
+I travel a lot ! Just drop me an invite !
